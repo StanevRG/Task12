@@ -12,7 +12,7 @@
 
 ##III.
 ![Окно результата для задания 1.1]
-(https://pp.vk.me/c628720/v628720710/9e03/JZMxC0cIQd4.jpg)
+(https://pp.vk.me/c628720/v628720710/9e44/wSFnRftfrUE.jpg)
 
 ![Окно результата для задания 1.1]
-(https://pp.vk.me/c628720/v628720710/9e0a/jqV3CNA6Mso.jpg)
+(https://pp.vk.me/c628720/v628720710/9e4c/FU6siVjpq-I.jpg)
